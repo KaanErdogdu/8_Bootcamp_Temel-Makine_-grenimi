@@ -1,0 +1,1 @@
+# 8_Bootcamp_Temel-Makine_-grenimi
